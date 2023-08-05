@@ -4,4 +4,4 @@
 
 🔗: https://www.executivecentre.com/
 
-📧: tecmarketing_global@executivecentre.com
+📧: etg-development@executivecentre.com
